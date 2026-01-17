@@ -2,7 +2,23 @@ hello there, im vyodka, ure probably reading this because u clicked on me on pon
 
 im a bit nervous to talk to people first but, if you want to talk to me first go ahead! don't be afraid to open up to me, i tolerate every ship. im an ISTP-T.
 
-though please do not interact with me if u:
+some of my likings are:
+- countryhumans (obviously)
+- pjsk (specifically VBS)
+- link click 
+- mo dao zu shi
+- jet fighters
+- instant noodles
+
+my hobbies:
+- drawing
+- listening to music
+- making AUs
+- writing
+- playing
+- sleep
+
+please do not interact with me if u:
 - are homophobic, racist, etc. (the usual criteria)
 - want to talk about nsfw, gore, or any other disturbing stuff.
 - want to argue with me
@@ -16,9 +32,8 @@ i do like talking about history and war, i also like military stuff, and i like 
 please int if:
 - u have common likings!
 - u ship:
-  RusAme, GerPol, FrUK, or SovAme
+  RusAme/SovAme, GerPol, or FrUK
 - u tolerate my ships
-- u are Russian (i really like Russia and i want to know more about it! i am not a freak)
 - u have ocs and have AUS related to countryhumans
 
 I also play other games, which are blood strike, minecraft, and war thunder.
