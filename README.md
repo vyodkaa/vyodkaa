@@ -1,6 +1,6 @@
 hello there, im vyodka, ure probably reading this because u clicked on me on ponytown, i assume. (there's no way someone would look at my profile otherwise)
-
 im a bit nervous to talk to people first but, if you want to talk to me first go ahead! don't be afraid to open up to me, i tolerate every ship. im an ISTP.
+some people say that im very quiet, and dry, but please dont get me wrong, ill try to match your style of communicating! 
 
 some of my likings are:
 - countryhumans
