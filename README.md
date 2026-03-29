@@ -26,6 +26,7 @@ please do not interact with me if u:
 
   other than those, its totally fine to talk to me!
 
+pls int if:
 - u have common likings!
 - u ship:
   akitoya, ruikasa
